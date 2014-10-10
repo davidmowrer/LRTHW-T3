@@ -19,4 +19,4 @@ Attention to details:
 
 
 Why do you need to not copy and paste?
-  You learn by typing not by copy and paste.  Also helps build on my typing skills.
+  You learn by typing not by copy and paste.  Also helps build on my typing skills.it 
